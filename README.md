@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NitinNautiyal
-- 👀 interested in everything that helps me downsize the overloaded in my mind
+- 👀 interested in everything that helps me downsize the overload building up in my mind
 - 🌱 I’m currently learning html5, Claude code, Anti gravity and Design/Architecture
 - 💞️ I’m looking to collaborate on ...
 
