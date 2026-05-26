@@ -6,7 +6,7 @@ oi. I’m Nitin 👋
 
 Your Generalist guy, dabbles in Product, Strategy, operations. 
 
-I’ve worked across D2C, SaaS, AI-powered products, operations, and growth - building things from messy zero-to-one ideas into scalable systems people today rely on.
+I’ve worked across D2C, SaaS, AI-powered products, operations, and growth - building things from messy zero-to-one ideas into scalable systems people @ KPMG, RIPPLR, Wellbeing Nutrition, RSPL & AMBAK rely on today.
 
 what I'm Smacking on these days?
 CC, web-extensions real power,  
