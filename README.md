@@ -9,7 +9,7 @@ Your Generalist guy, dabbles in Product, Strategy, operations.
 I’ve worked across D2C, SaaS, AI-powered products, operations, and growth - building things from messy zero-to-one ideas into scalable systems people @ KPMG, RIPPLR, Wellbeing Nutrition, RSPL & AMBAK rely on today.
 
 ### what I'm Smacking on these days?
-CC, web-extensions, Analysing the Stock Market
+CC, web-extensions, Analysing & Finding solutions for Core Market i.e. Supplychain, distribution, marketing, etc. 
 
 ### what I’m buildin?
 
